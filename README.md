@@ -1,0 +1,1 @@
+# digimetashop-legal
